@@ -2,7 +2,7 @@
 
 PC:
 
-https://goo.gl/EBPzcf
+https://goo.gl/EBPzcf/
 
 
 ANDROID:
